@@ -1,2 +1,36 @@
 # LUCAS-DE-PAULA-2-ALL-IN-MEP
 SITES EMPRESAS OAKSTONE
+https://drive.google.com/uc?export=view&id=1CsfCy69P3OQZShKp7jAVHUGd1Yqh_syK
+https://lh3.googleusercontent.com/d/1c_77y_lR4N0Ai8h-CvXlOY0REqTCpqFN
+https://lh3.googleusercontent.com/d/1TSClw9rd86vmKF27a4Ljq5cY4HCyvZA5
+https://lh3.googleusercontent.com/d/1zNw8iDemDu0c4UdjI1vXDWwbf7GrtzjM
+https://lh3.googleusercontent.com/d/1se7WzwDqMAkZ-ltnd4AmIqoOPgHV5jNF
+https://lh3.googleusercontent.com/d/1NJw0nEQLmFE_KuT9Sgc48_0xfDrQqmWK
+https://lh3.googleusercontent.com/d/1FoIWqDqatbdQY2HS1TAMIiH2c-06HvIK
+https://lh3.googleusercontent.com/d/1gR93ql8gDTqNtliGbu07xHrRtCnokesw
+https://lh3.googleusercontent.com/d/14FW8L7Oz7C28gdACxDgNAELEKWczRoEg
+https://lh3.googleusercontent.com/d/1QvHRpO4Vn100YaEEZxJma4Q8of8bwJ0z
+https://lh3.googleusercontent.com/d/1gtMyJ54oPBC1pokZU8zw14gdtUs1945d
+https://lh3.googleusercontent.com/d/1KtNGKAqRob1tKIVAEs-5-y_0-0LHFtrT
+https://lh3.googleusercontent.com/d/1Q46kok-uaAQVjdisaYafzh2ehgjMLETG
+https://lh3.googleusercontent.com/d/17ihf8vkOJEeWXVTaxFn1q2NyQy1Qn0Ug
+https://lh3.googleusercontent.com/d/1LoS7kZw4xI-cKa9kbHPk7RKP98EaOhpc
+https://lh3.googleusercontent.com/d/1Nu8_544K9Ur2EWDfXPVZ7B-4bo2pQkGj
+https://lh3.googleusercontent.com/d/1cnwFupyD_DpZPqu2koNjnYUtFEU19MO9
+https://lh3.googleusercontent.com/d/1aAl9PB82AtZu0A_gO2I1xXcXrJCfnXfO
+https://lh3.googleusercontent.com/d/1VqNHUAFTjF5fns8lFAEP3T-TUzq2_7HM
+https://lh3.googleusercontent.com/d/1Si6d66d5J6lGNhyn5npz4JMiErM-sH-Q
+https://lh3.googleusercontent.com/d/1f3_4o8ljm4_NLwN2xFfK_lax3B98ZZVp
+https://lh3.googleusercontent.com/d/1F-wkbFJKrRsYdUtLdz2wDvRfiI-aTYze
+https://lh3.googleusercontent.com/d/106QxSsbc-Db5-gfVZ39I_9uYk3PbV_bA=s4000
+https://lh3.googleusercontent.com/d/16syYbnIiwuMnQB_UcdG33V_q9RWDrNrU
+https://lh3.googleusercontent.com/d/1eItOk0bhtZS4tKB7G1gBEgmjKnOEmyne
+https://lh3.googleusercontent.com/d/1XM5rs0l3lBixMccXx2bj-reAW4AvS0ye
+https://lh3.googleusercontent.com/d/1sFWnEsbUnbvoY_HTCUF2NRFlAiCuFCVb
+https://lh3.googleusercontent.com/d/1Et5erjXRwYQeATKUw-4KEGl6c4qVTRKO
+https://lh3.googleusercontent.com/d/15YxxfnSCe6L82hXexmMNYCL5e_oL71rq
+https://lh3.googleusercontent.com/d/1QzonKIOmE3AzSP1z75PXioCpy2npQlTJ
+https://lh3.googleusercontent.com/d/1g7vLOkvChDCMSZJjC6atLCczJjYOIu06
+https://lh3.googleusercontent.com/d/1BKc7YLAYtUQYXedTzi9ziCkVTQbwouUb
+https://lh3.googleusercontent.com/d/1iYBliYuGeXRw_AuRS16K6AueEBPGlZpi
+https://lh3.googleusercontent.com/d/12b7Oojyr9fwOpyDvGXPVqEFCsvlydUGw
